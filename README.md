@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **rmukil2001@gmail.com**
 
-- 📄 Know about my experiences https://docs.google.com/document/d/1_lFDhqLC6OYA117KQIlvTj_ZvdlxVyQpAbfjnTXonYY/edit?usp=drivesdk
+- 📄 Know about my experiences https://drive.google.com/file/d/1QBN7GAyx4AvfNnRSoE4jy6oyFBiZzePr/view?usp=drivesdk
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
